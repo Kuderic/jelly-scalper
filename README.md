@@ -1,0 +1,1 @@
+This is a script to scalp (qwertykeyboards.com)[https://qwertykeyboards.com] for the coveted (Jelly Epoch SSE)[https://longing-scar-923.notion.site/Jelly-Epoch-SSE-Sale-Info-48449dadbfdb4415b1966f3e7085c325]. 
